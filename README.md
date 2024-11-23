@@ -5,5 +5,5 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently studying in AI master program 
+- 🔭  We can learn anything
 
